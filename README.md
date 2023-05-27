@@ -1,1 +1,1 @@
-# Studying_Skills
+# Studying & Skills
